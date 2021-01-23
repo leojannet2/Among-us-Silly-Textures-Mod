@@ -9,3 +9,5 @@ You Can See My GameBanana Account Username Is "leojan2" If You Like The Mod You 
 Enjoy.
 More Updates Coming.
 Or people who have joined me can make updates too if im offline.
+Use Steam Version Of Among Us Or Game Crash.
+I Tried On Normal Version So It Crashed.
